@@ -1,1 +1,1 @@
-# rsschool-cv
+https://PadhainyA.github.io/rsschool-cv/
